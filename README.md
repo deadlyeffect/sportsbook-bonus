@@ -1,5 +1,5 @@
 # sportsbook-bonus
 Offshore sportsbook bonus without KYC taxes
 
-Why use Draftkings or Fanduel when they limit you so fast when you can have no limits, better lines and no KYC or tax related information? 
+Why use Draftkings, Fanduel, BetMGM, Caesers or Betrivers? Once you burn your bonuses they will limit you. Want better odds and no KYC or tax related information? 
 http://betanysports.me
